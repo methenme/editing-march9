@@ -14,4 +14,4 @@ The average truck on the road today emits 47 percent more smog-forming exhaust, 
 
 
 
-The impact of this gap has been compounded by a dramatic shift in America’s passenger vehicle market. Over the past two decades, sales of light trucks have tripled. They once accounted for less than a fifth of new vehicle sales, they now approach 1⁄2. The combination—loopholes plus booming sales of light trucks have created enough global-warming gases and smog-forming pollution to equal the output of an additional forty million cars.
+The impact of this gap has been compounded by a dramatic shift in America’s passenger vehicle market; over the past two decades, sales of light trucks have tripled. They once accounted for less than one-fifth of new vehicle sales, they now approach 1⁄2. The combination—loopholes plus booming sales of light trucks have created enough global-warming gases and smog-forming pollution to equal the output of an additional forty million cars.
